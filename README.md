@@ -211,4 +211,4 @@ Awesome CP Blog : [https://blog.shahjalalshohag.com/topic-list/](https://blog.sh
 
 <hr>
 
-**Note :** This list by no means is exhaustive and contributions are welcome. You can comment below the LinkedIn post at : _______ or you can reach out to be on any of my social profiles mentioned above. Hope this helps ✨
+**Note :** This list by no means is exhaustive and contributions are welcome. You can reach out to me on any of my social profiles mentioned above. Hope this helps ✨
